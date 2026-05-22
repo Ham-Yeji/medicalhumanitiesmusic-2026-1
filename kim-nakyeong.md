@@ -15,7 +15,6 @@ The music used in the movie is centered on the calm piano melody and the classic
 In the work, dementia is not just a disease, but appears as a key factor in testing the relationship between the two. As Allie loses her memory, her memories and feelings with Noah become blurred, but Noah stays by her side and continues his love. Through this, the movie shows that dementia not only affects individual memories but also human relationships and identity.
 [영상에서 가장 인상깊었던 장면 중 하나](https://www.youtube.com/watch?v=TlEQSsg7w7U)
 
-In the work, dementia is not just a disease, but a key factor that tests their relationship. As Ally loses her memory, her memories and emotions with Noah blur, but Noah stays by her side and continues his love. This shows that dementia has a great influence on not only personal memories but also human relationships and identity.
 
 # 노트북
 
