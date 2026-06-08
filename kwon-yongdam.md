@@ -15,7 +15,7 @@ Finally, the song connects to the Week 14 question, “Life is short, but art is
 Music link: [Debussy - Clair de Lune](https://www.youtube.com/watch?v=-Bxpm0EmOMU)
 
 
-<img src="./kwonyongdam.png" alt="depression" style="width:25%;" />
+<img src="./kwon-yongdam.png" alt="depression" style="width:25%;" />
 
 # Jocelyn Flores
 
@@ -25,4 +25,4 @@ Music link: [Debussy - Clair de Lune](https://www.youtube.com/watch?v=-Bxpm0EmOM
 음악 링크: [Debussy - Clair de Lune](https://www.youtube.com/watch?v=-Bxpm0EmOMU)
 
 
-<img src="./kwonyongdam.png" alt="depression" style="width:25%;" />
+<img src="./kwon-yongdam.png" alt="depression" style="width:25%;" />
